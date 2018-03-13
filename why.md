@@ -1,0 +1,1 @@
+I am in this course because I am excited about AI. As the field is clearly growing I believe the job market will grow as well. I think if I do well in this course I will be able to get employment. I guess there are some dangers. Like, autonmomous machines being allowed to decide if someone is killed without human intervention. 
